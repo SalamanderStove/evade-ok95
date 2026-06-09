@@ -1,4 +1,4 @@
-#  
+#  evade Scripts elite is the best evade Script, featuring instant win and auto-collect. Safe and powerful for all your needs.
 
 
 
